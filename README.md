@@ -7,4 +7,4 @@
 
 
 > The model links would be updated soon. 
-> Please feel free to email me for any questions at brawat [at] umass.edu. Thanks.
+> Please feel free to email me for any questions at bhanupratap.mnit@gmail.com. Thanks.
